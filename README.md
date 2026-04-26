@@ -38,6 +38,10 @@
 ☞︎ Intuitive, user-friendly interface  
 
 𝖣𝗂𝗀𝗂𝗍𝗆𝖺𝗍𝖼𝗁 𝖦𝗁𝗈𝗌𝗍 AI 𝖡𝗈𝗍 𝖯𝗋𝗂𝖼𝖾: 200 𝐔𝐒𝐃
+.
+<img width="1024" height="1536" alt="Image" src="https://github.com/user-attachments/assets/c1aa72f2-27b0-4da8-9cda-18e51ff12a03" />
+.
+
 
 ☏︎ 𝐂𝐎𝐍𝐓𝐀𝐂𝐓 𝐔𝐒 ☏︎
 
