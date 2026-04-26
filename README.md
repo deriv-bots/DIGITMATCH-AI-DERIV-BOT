@@ -1,3 +1,12 @@
+<img width="1183" height="2560" alt="Image" src="https://github.com/user-attachments/assets/edc6774d-880a-402f-b70a-736edfd67373" />
+
+<img width="1183" height="2560" alt="Image" src="https://github.com/user-attachments/assets/001a7c81-f37b-4a02-9660-8759450e04be" />
+
+<img width="1183" height="2560" alt="Image" src="https://github.com/user-attachments/assets/56724233-1cf5-4cc5-9e35-0f5efae6fe98" />
+
+<img width="1183" height="2560" alt="Image" src="https://github.com/user-attachments/assets/e3d473c8-4076-4448-93c1-457cf6c916fc" />
+
+
 𝗗𝗜𝗚𝗜𝗧𝗠𝗔𝗧𝗖𝗛 𝗚𝗛𝗢𝗦𝗧 AI 𝗕𝗢𝗧, 𝖺 𝗅𝗎𝗑𝗎𝗋𝗒 𝗀𝗋𝖺𝖽𝖾, 𝗉𝗅𝗎𝗀 𝖺𝗇𝖽 𝗉𝗅𝖺𝗒 𝗋𝗈𝖻𝗈𝗍 𝗍𝗁𝖺𝗍 make 𝗆𝖺𝗋𝗄𝖾𝗍 𝖾𝗇𝗍𝗋𝗂𝖾𝗌 𝗐𝗂𝗍𝗁 𝗌𝗎𝗋𝗀𝗂𝖼𝖺𝗅 𝖺𝖼𝖼𝗎𝗋𝖺𝖼𝗒.
 
 𝗝𝗨𝗦𝗧 𝗨𝗣𝗟𝗢𝗔𝗗. 𝗟𝗘𝗧 𝗜𝗧 𝗥𝗨𝗡. 𝗪𝗔𝗧𝗖𝗛 𝗜𝗧 𝗪𝗜𝗡.
